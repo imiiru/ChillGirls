@@ -8,4 +8,4 @@ Game Design Presentation V1.0 : https://www.canva.com/design/DAGY-ax9MxU/BBFw89Q
 
 Game Design Presentation V1.1 : https://www.canva.com/design/DAGcbfyteQ8/ogYhHuQn8oO073owqw1QzA/edit?utm_content=DAGcbfyteQ8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-Game Design Presentation V1.2 (31/1/25) : https://www.canva.com/design/DAGdxWSCfIk/TfaYe2cQEen8NXh8xk_qdw/edit?utm_content=DAGdxWSCfIk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+Game Design Presentation V1.2 (31/1/25) : https://www.canva.com/design/DAGdxWSCfIk/TfaYe2cQEen8NXh8xk_qdw/edit?utm_content=DAGdxWSCfIk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
